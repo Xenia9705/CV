@@ -2,7 +2,7 @@
 
 ## Education  
 **TungHai University** — *Bachelor’s in International Business Administration* (2021 – 2025)  
-**TungHai University** — *Master’s in Global Business Administration* (2021 – 2025)  
+**TungHai University** — *Master’s in Global Business Administration* (2025)  
 
 ---
 

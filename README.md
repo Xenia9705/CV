@@ -2,7 +2,7 @@
 
 ## Education  
 **TungHai University** — *Bachelor’s in International Business Administration* (2021 – 2025)  
-**TungHai University** — *Master’s in Global Business Administration* (2025)  
+**TungHai University** — *Master’s in Global Business Administration* (2025-2026)  
 
 ---
 
@@ -25,4 +25,4 @@
 ## Achievements  
 - Consistently ranked among the **top students** throughout the Bachelor’s program.  
 - Strong passion for **foreign languages** and **computer skills** (including productivity tools and programming basics).  
-- Recognized for academic excellence and dedication to self-improvement.Ｓ
+- Recognized for academic excellence and dedication to self-improvement.
